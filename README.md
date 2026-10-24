@@ -1,1 +1,4 @@
-https://mirror.xyz/sebastiansupreme.eth/xbCnL5OJzzRRlnqlSXptOpybnISMHP0kvJsMfYrk-PE
+Read the associated article here:
+
+https://medium.com/@sebastiansupreme/electromagnetic-coilgun-af1a86946e85
+https://paragraph.com/@sebastiansupreme/electromagnetic-coilgun
